@@ -1,5 +1,5 @@
 # 💫 About Me:
-A potato who wants to learn more about coding<br>Currently studying information technology at DLU<br>Looking forward to collab with y'all
+A potato who wants to learn more about coding<br>Currently studying information technology at DLU<br>Looking forward to collabing with y'all
 
 
 ## 🌐 Socials:
